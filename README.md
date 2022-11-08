@@ -1,3 +1,3 @@
 # gamingsoftware
-gaming sogftware.
+gaming software.
 free of virus.
